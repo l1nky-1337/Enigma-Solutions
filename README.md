@@ -1,2 +1,4 @@
-# Enigma-Solutions
-Enigma Solutions Discord server
+# Discord
+
+[New Server Invite](https://discord.gg/5Myw8xPyhS)
+
